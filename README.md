@@ -11,7 +11,8 @@
 
 ## 🔥 最新下载与访问地址
 
-- **[官方下载地址①]([(https://24de.chqlbab.org/chan/GS2461/cAsTp)])**  
+- **[官方下载地址①]
+- https://24de.chqlbab.org/chan/GS2461/cAsTp
 
 > 建议收藏本页面，防止地址失效
 
